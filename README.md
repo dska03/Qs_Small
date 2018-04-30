@@ -1,1 +1,0 @@
-# Qs_Small
